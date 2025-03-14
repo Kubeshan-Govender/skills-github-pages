@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog bru
+title: Website up and running haha!
 ---
 
