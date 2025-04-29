@@ -1,4 +1,4 @@
 ---
-title: Website up and running haha!
+title: Hello my White friend Dan, and Niggermus Prime!
 ---
 
